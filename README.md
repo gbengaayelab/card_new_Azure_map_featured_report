@@ -1,0 +1,1 @@
+# card_new_Azure_map_featured_report
